@@ -1,0 +1,3 @@
+- 👋 Hi, I’m @IqFiskMos
+- 👀 I’m interested in programming and gaming
+- 🌱 I’m currently learning Programming att Lexicon
